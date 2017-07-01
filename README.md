@@ -1,5 +1,5 @@
 # hello-world
 just another repository
 
-I dont know what the heck I'm doing. pls send help 
-I'll need more booze
+I know what I'm doing. pls don't send help 
+I'll need more water cause I'm dehydrated
